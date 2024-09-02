@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @mijoloukss45
+- 👀 me interesa ser progremador ( soy principiante ) 
